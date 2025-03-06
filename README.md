@@ -1,1 +1,0 @@
-# Pc_komponenty_DB
